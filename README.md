@@ -1,3 +1,0 @@
-# EnSue Laboratories
-
-:)
